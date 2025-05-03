@@ -1,15 +1,9 @@
  # 👋 Hey, I'm Sahifa!
 
-+--------------------------------------------------+
-| Trina make it through the day                    |
-+--------------------------------------------------+
-
-</div>
-
 
 AI Engineer | GenAI Explorer | Data Science Enthusiast
 
----
+
 
 ## 👀 About Me
 
