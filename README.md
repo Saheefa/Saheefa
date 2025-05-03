@@ -64,7 +64,7 @@ And yes — keyboard clacks are my white noise!
 ## 📫 Get in Touch
 
 Reach out at: **sahifahashmi786@gmail.com** 
-Connect on: [LinkedIn](https://linkedin.com/in/sahifa) 
+Connect on: [LinkedIn](https://www.linkedin.com/in/sahifa-hashmi) 
 
 ---
 
