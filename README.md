@@ -1,6 +1,5 @@
  # 👋 Hey, I'm Sahifa!
 
-🎀 prolly stuck somewhere between hallucinations and breakthroughs...
 
 AI Engineer | GenAI Explorer | Data Science Enthusiast
 
